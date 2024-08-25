@@ -1,4 +1,4 @@
-![SHPELACC](https://github.com/microsoft/.github/blob/main/images/open-at-microsoft.png) 
+![SHPELACC](https://github.com/LACC-SHPE/.github/blob/main/Collaborate%20Innovate%20Empower.png) 
 
 ## Get Involved
 
